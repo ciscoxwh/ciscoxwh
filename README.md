@@ -1,4 +1,3 @@
-\\ // \\ // \\ // \\ //
 hi! i'm cisco. i'm 19 years old, and i am deeply interested in music!
 
 i have very extensive experience with ableton live, and i can write some code on a good day (usually if it's audio related)
